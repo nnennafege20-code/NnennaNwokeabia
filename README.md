@@ -23,7 +23,7 @@ I'm passionate about cybersecurity and love tackling complex challenges through 
 
 [twitter]: https://twitter.com/___________
 [youtube]: https://www.youtube.com/c/___________
-[instagram]: https://www.instagram.com/___________
+[instagram]: https://www.instagram.com/_@i.am.nnennan__________
 [linkedin]: https://linkedin.com/in/___________
 
 <!--
